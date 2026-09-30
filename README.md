@@ -1,0 +1,1 @@
+Đây là một STEM project do học sinh thực hiện nhằm mục đích nghiên cứu và nâng cao nhận thực, hiện tại dự án vẫn đang trong quá trình hoàn thiện, cảm ơn mọi người đã tin tưởng vào sản phầm của chúng tôi <3
